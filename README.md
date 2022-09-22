@@ -1,4 +1,4 @@
-- 👋 Hi, Ich bin frau mutahir
+- 👋 Hi, Ich bin Frau Mutahir
 - 👀 Ich interessiere mich in IT
 - 🌱 Ich lerne momentan computer basics
 - 💞️ Mein Ziel es ist, ein ausbildung zu finden
