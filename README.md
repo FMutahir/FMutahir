@@ -2,6 +2,7 @@
 - 👀 I’m interested in doing IT courses
 - 🌱 I’m currently learning computer basics
 - 💞️ My aim is to find an ausbildung
+-🙂  I am a beginner
 - 📫 please reach me at farihasiddiqui54@gmail.com
 
 <!---
